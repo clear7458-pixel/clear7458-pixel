@@ -2,43 +2,43 @@
 
 #𝙳𝚎𝚝𝚊𝚒𝚕𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 𝚋𝚎𝚏𝚘𝚛𝚎 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑𝚒𝚗𝚐. 
 
-• I’m not someone who is constantly active in conversations or able to respond to every message right away.
+• 𝙸’𝚖 𝚗𝚘𝚝 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚠𝚑𝚘 𝚒𝚜 𝚌𝚘𝚗𝚜𝚝𝚊𝚗𝚝𝚕𝚢 𝚊𝚌𝚝𝚒𝚟𝚎 𝚒𝚗 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜 𝚘𝚛 𝚊𝚋𝚕𝚎 𝚝𝚘 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚝𝚘 𝚎𝚟𝚎𝚛𝚢 𝚖𝚎𝚜𝚜𝚊𝚐𝚎 𝚛𝚒𝚐𝚑𝚝 𝚊𝚠𝚊𝚢.
 
-Unless we’re already close, have spoken before, or have built some level of trust with each other, I may come across as quiet, distant, or difficult to approach at first.
+𝚄𝚗𝚕𝚎𝚜𝚜 𝚠𝚎’𝚛𝚎 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚌𝚕𝚘𝚜𝚎, 𝚑𝚊𝚟𝚎 𝚜𝚙𝚘𝚔𝚎𝚗 𝚋𝚎𝚏𝚘𝚛𝚎, 𝚘𝚛 𝚑𝚊𝚟𝚎 𝚋𝚞𝚒𝚕𝚝 𝚜𝚘𝚖𝚎 𝚕𝚎𝚟𝚎𝚕 𝚘𝚏 𝚝𝚛𝚞𝚜𝚝 𝚠𝚒𝚝𝚑 𝚎𝚊𝚌𝚑 𝚘𝚝𝚑𝚎𝚛, 𝙸 𝚖𝚊𝚢 𝚌𝚘𝚖𝚎 𝚊𝚌𝚛𝚘𝚜𝚜 𝚊𝚜 𝚚𝚞𝚒𝚎𝚝, 𝚍𝚒𝚜𝚝𝚊𝚗𝚝, 𝚘𝚛 𝚍𝚒𝚏𝚏𝚒𝚌𝚞𝚕𝚝 𝚝𝚘 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑 𝚊𝚝 𝚏𝚒𝚛𝚜𝚝.
 
-That doesn’t mean I dislike talking to people.
+𝚃𝚑𝚊𝚝 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚖𝚎𝚊𝚗 𝙸 𝚍𝚒𝚜𝚕𝚒𝚔𝚎 𝚝𝚊𝚕𝚔𝚒𝚗𝚐 𝚝𝚘 𝚙𝚎𝚘𝚙𝚕𝚎.
 
-The truth is that I spend a lot of time in my own thoughts. Sometimes I get lost in daydreams, music, games, ,or simply whatever happens to catch my interest at the moment.
+𝚃𝚑𝚎 𝚝𝚛𝚞𝚝𝚑 𝚒𝚜 𝚝𝚑𝚊𝚝 𝙸 𝚜𝚙𝚎𝚗𝚍 𝚊 𝚕𝚘𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎 𝚒𝚗 𝚖𝚢 𝚘𝚠𝚗 𝚝𝚑𝚘𝚞𝚐𝚑𝚝𝚜. 𝚂𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝙸 𝚐𝚎𝚝 𝚕𝚘𝚜𝚝 𝚒𝚗 𝚍𝚊𝚢𝚍𝚛𝚎𝚊𝚖𝚜, 𝚖𝚞𝚜𝚒𝚌, 𝚐𝚊𝚖𝚎𝚜, ,𝚘𝚛 𝚜𝚒𝚖𝚙𝚕𝚢 𝚠𝚑𝚊𝚝𝚎𝚟𝚎𝚛 𝚑𝚊𝚙𝚙𝚎𝚗𝚜 𝚝𝚘 𝚌𝚊𝚝𝚌𝚑 𝚖𝚢 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝 𝚊𝚝 𝚝𝚑𝚎 𝚖𝚘𝚖𝚎𝚗𝚝.
 
-Most of my free time is usually spent on my phone, listening to music, exploring things I enjoy, or enjoying my own company in silence.
+𝙼𝚘𝚜𝚝 𝚘𝚏 𝚖𝚢 𝚏𝚛𝚎𝚎 𝚝𝚒𝚖𝚎 𝚒𝚜 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚜𝚙𝚎𝚗𝚝 𝚘𝚗 𝚖𝚢 𝚙𝚑𝚘𝚗𝚎, 𝚕𝚒𝚜𝚝𝚎𝚗𝚒𝚗𝚐 𝚝𝚘 𝚖𝚞𝚜𝚒𝚌, 𝚎𝚡𝚙𝚕𝚘𝚛𝚒𝚗𝚐 𝚝𝚑𝚒𝚗𝚐𝚜 𝙸 𝚎𝚗𝚓𝚘𝚢, 𝚘𝚛 𝚎𝚗𝚓𝚘𝚢𝚒𝚗𝚐 𝚖𝚢 𝚘𝚠𝚗 𝚌𝚘𝚖𝚙𝚊𝚗𝚢 𝚒𝚗 𝚜𝚒𝚕𝚎𝚗𝚌𝚎.
 
-Because of this, I may reply late, disappear for a while, or become quiet without any particular reason. Please don't assume that I'm ignoring you or that you've done something wrong.
+𝙱𝚎𝚌𝚊𝚞𝚜𝚎 𝚘𝚏 𝚝𝚑𝚒𝚜, 𝙸 𝚖𝚊𝚢 𝚛𝚎𝚙𝚕𝚢 𝚕𝚊𝚝𝚎, 𝚍𝚒𝚜𝚊𝚙𝚙𝚎𝚊𝚛 𝚏𝚘𝚛 𝚊 𝚠𝚑𝚒𝚕𝚎, 𝚘𝚛 𝚋𝚎𝚌𝚘𝚖𝚎 𝚚𝚞𝚒𝚎𝚝 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚊𝚗𝚢 𝚙𝚊𝚛𝚝𝚒𝚌𝚞𝚕𝚊𝚛 𝚛𝚎𝚊𝚜𝚘𝚗. 𝙿𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚊𝚜𝚜𝚞𝚖𝚎 𝚝𝚑𝚊𝚝 𝙸'𝚖 𝚒𝚐𝚗𝚘𝚛𝚒𝚗𝚐 𝚢𝚘𝚞 𝚘𝚛 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞'𝚟𝚎 𝚍𝚘𝚗𝚎 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 𝚠𝚛𝚘𝚗𝚐.
 
-I simply need more time alone than most people do.
+𝙸 𝚜𝚒𝚖𝚙𝚕𝚢 𝚗𝚎𝚎𝚍 𝚖𝚘𝚛𝚎 𝚝𝚒𝚖𝚎 𝚊𝚕𝚘𝚗𝚎 𝚝𝚑𝚊𝚗 𝚖𝚘𝚜𝚝 𝚙𝚎𝚘𝚙𝚕𝚎 𝚍𝚘.
 
-I enjoy peaceful environments and quiet places. Loud, chaotic, or overwhelming situations can be exhausting for me, so I often prefer calm spaces where I can think and feel comfortable.
+𝙸 𝚎𝚗𝚓𝚘𝚢 𝚙𝚎𝚊𝚌𝚎𝚏𝚞𝚕 𝚎𝚗𝚟𝚒𝚛𝚘𝚗𝚖𝚎𝚗𝚝𝚜 𝚊𝚗𝚍 𝚚𝚞𝚒𝚎𝚝 𝚙𝚕𝚊𝚌𝚎𝚜. 𝙻𝚘𝚞𝚍, 𝚌𝚑𝚊𝚘𝚝𝚒𝚌, 𝚘𝚛 𝚘𝚟𝚎𝚛𝚠𝚑𝚎𝚕𝚖𝚒𝚗𝚐 𝚜𝚒𝚝𝚞𝚊𝚝𝚒𝚘𝚗𝚜 𝚌𝚊𝚗 𝚋𝚎 𝚎𝚡𝚑𝚊𝚞𝚜𝚝𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎, 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚙𝚛𝚎𝚏𝚎𝚛 𝚌𝚊𝚕𝚖 𝚜𝚙𝚊𝚌𝚎𝚜 𝚠𝚑𝚎𝚛𝚎 𝙸 𝚌𝚊𝚗 𝚝𝚑𝚒𝚗𝚔 𝚊𝚗𝚍 𝚏𝚎𝚎𝚕 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎.
 
-I am also a Highly Sensitive Person (HSP), which means I tend to notice small details, pick up on emotions easily, and feel things more deeply than many people realize.
+𝙸 𝚊𝚖 𝚊𝚕𝚜𝚘 𝚊 𝙷𝚒𝚐𝚑𝚕𝚢 𝚂𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎 𝙿𝚎𝚛𝚜𝚘𝚗 (𝙷𝚂𝙿), 𝚠𝚑𝚒𝚌𝚑 𝚖𝚎𝚊𝚗𝚜 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚗𝚘𝚝𝚒𝚌𝚎 𝚜𝚖𝚊𝚕𝚕 𝚍𝚎𝚝𝚊𝚒𝚕𝚜, 𝚙𝚒𝚌𝚔 𝚞𝚙 𝚘𝚗 𝚎𝚖𝚘𝚝𝚒𝚘𝚗𝚜 𝚎𝚊𝚜𝚒𝚕𝚢, 𝚊𝚗𝚍 𝚏𝚎𝚎𝚕 𝚝𝚑𝚒𝚗𝚐𝚜 𝚖𝚘𝚛𝚎 𝚍𝚎𝚎𝚙𝚕𝚢 𝚝𝚑𝚊𝚗 𝚖𝚊𝚗𝚢 𝚙𝚎𝚘𝚙𝚕𝚎 𝚛𝚎𝚊𝚕𝚒𝚣𝚎.
 
-• Words, tone, and small actions can leave a lasting impression on me, whether positive or negative.
+• 𝚆𝚘𝚛𝚍𝚜, 𝚝𝚘𝚗𝚎, 𝚊𝚗𝚍 𝚜𝚖𝚊𝚕𝚕 𝚊𝚌𝚝𝚒𝚘𝚗𝚜 𝚌𝚊𝚗 𝚕𝚎𝚊𝚟𝚎 𝚊 𝚕𝚊𝚜𝚝𝚒𝚗𝚐 𝚒𝚖𝚙𝚛𝚎𝚜𝚜𝚒𝚘𝚗 𝚘𝚗 𝚖𝚎, 𝚠𝚑𝚎𝚝𝚑𝚎𝚛 𝚙𝚘𝚜𝚒𝚝𝚒𝚟𝚎 𝚘𝚛 𝚗𝚎𝚐𝚊𝚝𝚒𝚟𝚎.
 
-I may not always know the right thing to say, and sometimes it takes me a while to express myself properly.
+𝙸 𝚖𝚊𝚢 𝚗𝚘𝚝 𝚊𝚕𝚠𝚊𝚢𝚜 𝚔𝚗𝚘𝚠 𝚝𝚑𝚎 𝚛𝚒𝚐𝚑𝚝 𝚝𝚑𝚒𝚗𝚐 𝚝𝚘 𝚜𝚊𝚢, 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚒𝚝 𝚝𝚊𝚔𝚎𝚜 𝚖𝚎 𝚊 𝚠𝚑𝚒𝚕𝚎 𝚝𝚘 𝚎𝚡𝚙𝚛𝚎𝚜𝚜 𝚖𝚢𝚜𝚎𝚕𝚏 𝚙𝚛𝚘𝚙𝚎𝚛𝚕𝚢.
 
-However, I genuinely pay attention to the little things and often remember details that others might overlook.
+𝙷𝚘𝚠𝚎𝚟𝚎𝚛, 𝙸 𝚐𝚎𝚗𝚞𝚒𝚗𝚎𝚕𝚢 𝚙𝚊𝚢 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 𝚝𝚘 𝚝𝚑𝚎 𝚕𝚒𝚝𝚝𝚕𝚎 𝚝𝚑𝚒𝚗𝚐𝚜 𝚊𝚗𝚍 𝚘𝚏𝚝𝚎𝚗 𝚛𝚎𝚖𝚎𝚖𝚋𝚎𝚛 𝚍𝚎𝚝𝚊𝚒𝚕𝚜 𝚝𝚑𝚊𝚝 𝚘𝚝𝚑𝚎𝚛𝚜 𝚖𝚒𝚐𝚑𝚝 𝚘𝚟𝚎𝚛𝚕𝚘𝚘𝚔.
 
-If we spend enough time together and get to know each other better, you'll probably discover a different side of me.
+𝙸𝚏 𝚠𝚎 𝚜𝚙𝚎𝚗𝚍 𝚎𝚗𝚘𝚞𝚐𝚑 𝚝𝚒𝚖𝚎 𝚝𝚘𝚐𝚎𝚝𝚑𝚎𝚛 𝚊𝚗𝚍 𝚐𝚎𝚝 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚎𝚊𝚌𝚑 𝚘𝚝𝚑𝚎𝚛 𝚋𝚎𝚝𝚝𝚎𝚛, 𝚢𝚘𝚞'𝚕𝚕 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚍𝚒𝚜𝚌𝚘𝚟𝚎𝚛 𝚊 𝚍𝚒𝚏𝚏𝚎𝚛𝚎𝚗𝚝 𝚜𝚒𝚍𝚎 𝚘𝚏 𝚖𝚎.
 
-I can be warm, caring, playful, and talkative around people I trust.
+𝙸 𝚌𝚊𝚗 𝚋𝚎 𝚠𝚊𝚛𝚖, 𝚌𝚊𝚛𝚒𝚗𝚐, 𝚙𝚕𝚊𝚢𝚏𝚞𝚕, 𝚊𝚗𝚍 𝚝𝚊𝚕𝚔𝚊𝚝𝚒𝚟𝚎 𝚊𝚛𝚘𝚞𝚗𝚍 𝚙𝚎𝚘𝚙𝚕𝚎 𝙸 𝚝𝚛𝚞𝚜𝚝.
 
-Building that trust simply takes time.
+𝙱𝚞𝚒𝚕𝚍𝚒𝚗𝚐 𝚝𝚑𝚊𝚝 𝚝𝚛𝚞𝚜𝚝 𝚜𝚒𝚖𝚙𝚕𝚢 𝚝𝚊𝚔𝚎𝚜 𝚝𝚒𝚖𝚎.
 
-Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends If I don’t come to talk to you or start a conversation, it doesn’t mean I dislike you.
-I’m just naturally shy and sometimes feel nervous when interacting with others.
+𝙿𝚕𝚎𝚊𝚜𝚎 𝚋𝚎 𝚔𝚒𝚗𝚍, 𝚙𝚊𝚝𝚒𝚎𝚗𝚝, 𝚊𝚗𝚍 𝚛𝚎𝚜𝚙𝚎𝚌𝚝𝚏𝚞𝚕 𝚘𝚏 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚒𝚎𝚜 — 𝚗𝚘𝚝 𝚘𝚗𝚕𝚢 𝚖𝚒𝚗𝚎, 𝚋𝚞𝚝 𝚊𝚕𝚜𝚘 𝚝𝚑𝚘𝚜𝚎 𝚘𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝙸𝚏 𝙸 𝚍𝚘𝚗’𝚝 𝚌𝚘𝚖𝚎 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚢𝚘𝚞 𝚘𝚛 𝚜𝚝𝚊𝚛𝚝 𝚊 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗, 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚖𝚎𝚊𝚗 𝙸 𝚍𝚒𝚜𝚕𝚒𝚔𝚎 𝚢𝚘𝚞.
+𝙸’𝚖 𝚓𝚞𝚜𝚝 𝚗𝚊𝚝𝚞𝚛𝚊𝚕𝚕𝚢 𝚜𝚑𝚢 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚏𝚎𝚎𝚕 𝚗𝚎𝚛𝚟𝚘𝚞𝚜 𝚠𝚑𝚎𝚗 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚘𝚝𝚑𝚎𝚛𝚜.
 
-I find it a bit difficult to keep conversations going or respond properly, especially when we’re not close yet.
+𝙸 𝚏𝚒𝚗𝚍 𝚒𝚝 𝚊 𝚋𝚒𝚝 𝚍𝚒𝚏𝚏𝚒𝚌𝚞𝚕𝚝 𝚝𝚘 𝚔𝚎𝚎𝚙 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜 𝚐𝚘𝚒𝚗𝚐 𝚘𝚛 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚙𝚛𝚘𝚙𝚎𝚛𝚕𝚢, 𝚎𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚠𝚑𝚎𝚗 𝚠𝚎’𝚛𝚎 𝚗𝚘𝚝 𝚌𝚕𝚘𝚜𝚎 𝚢𝚎𝚝.
 
-I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.
+𝙸 𝚊𝚕𝚜𝚘 𝚍𝚘𝚗’𝚝 𝚑𝚊𝚟𝚎 𝚖𝚊𝚗𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝚜𝚘 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚐𝚎𝚝 𝚊𝚝𝚝𝚊𝚌𝚑𝚎𝚍 𝚝𝚘 𝚙𝚎𝚘𝚙𝚕𝚎 𝚎𝚊𝚜𝚒𝚕𝚢 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚏𝚎𝚎𝚕 𝚊 𝙸𝚃𝚑𝚊𝚗𝚔 𝚓𝚎𝚊𝚕𝚘𝚞𝚜 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚖𝚎𝚊𝚗𝚒𝚗𝚐 𝚝𝚘.
 
-Even so, I always try my best not to bother anyone or make them uncomfortable.        
+𝙴𝚟𝚎𝚗 𝚜𝚘, 𝙸 𝚊𝚕𝚠𝚊𝚢𝚜 𝚝𝚛𝚢 𝚖𝚢 𝚋𝚎𝚜𝚝 𝚗𝚘𝚝 𝚝𝚘 𝚋𝚘𝚝𝚑𝚎𝚛 𝚊𝚗𝚢𝚘𝚗𝚎 𝚘𝚛 𝚖𝚊𝚔𝚎 𝚝𝚑𝚎𝚖 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎. 
 
-• #My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. and Minecraft I play alone because I'm more comfortable being by myself and playing my favorite game. And I love my freedom And I am. Psychology Enthusiast Thank you for taking the time to read this.
+• #𝙼𝚢 𝚏𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚐𝚊𝚖𝚎 𝚒𝚜 𝚍𝚛𝚊𝚐𝚘𝚗 𝚊𝚍𝚟𝚎𝚗𝚝𝚞𝚛𝚎𝚜/𝚌𝚛𝚎𝚊𝚝𝚞𝚛𝚎𝚜 𝚘𝚏 𝚜𝚘𝚗𝚊𝚛𝚒𝚊 𝙰𝚗𝚍 𝙸 𝚙𝚕𝚊𝚢 𝙼𝚒𝚗𝚎𝚌𝚛𝚊𝚏𝚝 𝚝𝚘𝚘. 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚙𝚕𝚊𝚢 𝚁𝚘𝚋𝚕𝚘𝚡 𝚐𝚊𝚖𝚎𝚜. 𝚊𝚗𝚍 𝙼𝚒𝚗𝚎𝚌𝚛𝚊𝚏𝚝 𝙸 𝚙𝚕𝚊𝚢 𝚊𝚕𝚘𝚗𝚎 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚋𝚎𝚒𝚗𝚐 𝚋𝚢 𝚖𝚢𝚜𝚎𝚕𝚏 𝚊𝚗𝚍 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚖𝚢 𝚏𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚐𝚊𝚖𝚎. 𝙰𝚗𝚍 𝙸 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚎𝚎𝚍𝚘𝚖 𝙰𝚗𝚍 𝙸 𝚊𝚖. 𝙿𝚜𝚢𝚌𝚑𝚘𝚕𝚘𝚐𝚢 𝙴𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝 𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 𝚝𝚘 𝚛𝚎𝚊𝚍 𝚝𝚑𝚒𝚜.
