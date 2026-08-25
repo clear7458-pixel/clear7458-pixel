@@ -1,23 +1,20 @@
-
-# A little piece of me
+# A little piece of who I am
 
 > 「 Before getting to know me 」
 
-I’m not someone who is always active, constantly talking, or able to respond to every message right away.
+I’m not someone who is always available, constantly talking, or able to respond to every message immediately.
 
-Sometimes I’m simply quiet.
+Sometimes I disappear for a while. Sometimes I become quiet without saying anything. Sometimes I simply don't have the energy to talk, even when nothing bad has happened.
 
-Sometimes I disappear for a while, stay in my own little world, listen to music, play games, think about random things, or just enjoy being alone.
-
-If I don’t reply immediately, please don’t assume that I’m ignoring you, angry with you, or that you did something wrong.
+If that happens, please don't immediately assume that I am angry with you, ignoring you, or trying to push you away.
 
 Most of the time, I simply need some time for myself.
 
-I can be shy and a little awkward when meeting new people, especially when I don’t know someone well yet. I might not always know how to start a conversation or keep one going.
+I am naturally a quiet person, especially around people I don't know very well. I may seem distant, awkward, or difficult to approach at first, but that doesn't necessarily mean that I dislike you.
 
-That doesn’t mean I don’t want to talk to you.
+I usually need time to become comfortable with someone before I can truly open up.
 
-I just need time to become comfortable.
+Once I feel safe and comfortable around someone, I can become much more talkative, playful, caring, and open than I might seem at first.
 
 ---
 
@@ -25,277 +22,380 @@ I just need time to become comfortable.
 
 ✦ I enjoy peaceful and quiet environments.
 
-✦ I spend a lot of time thinking, daydreaming, listening to music, or getting lost in my own thoughts.
+✦ I spend a lot of time inside my own thoughts.
 
-✦ I enjoy playing games, exploring things that interest me, and spending time on my phone.
+✦ I often get lost in music, games, daydreams, or whatever happens to catch my attention.
 
-✦ I usually prefer doing things at my own pace.
+✦ I enjoy having time completely to myself.
 
-✦ I sometimes need a lot of time alone to recharge.
+✦ I can be very quiet for long periods of time.
 
-✦ My social energy can change very quickly depending on how I feel.
+✦ I may reply late, disappear for a while, or suddenly become less talkative.
 
-✦ I can be quiet around people I don't know well.
+✦ I can be shy and awkward when approaching people first.
 
-✦ Around people I trust, I can become much more talkative, playful, caring, and comfortable.
+✦ I tend to become attached to people once I become comfortable with them.
 
-✦ I can become attached to people easily once I genuinely trust them.
+✦ I care about small details, even when I don't always say anything about them.
 
-✦ I am a Highly Sensitive Person (HSP).
+✦ I value trust, patience, honesty, and personal boundaries.
 
-Because of that, I tend to notice small details, changes in tone, expressions, and little things that other people might not think much about.
-
-Words can stay in my mind for a long time.
-
-Even something that seems small to someone else can sometimes mean a lot to me.
+✦ I am also a Highly Sensitive Person (HSP), so I can sometimes notice and feel things more deeply than people might expect.
 
 [![image](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL)
 
-> *i know how its all gonna end it's just a rerun a rerun of my favorite episode*
+*i know how its all gonna end it's just a rerun a rerun of my favorite episode*
 
 ---
 
-## 「 When I go quiet 」
+## 「 When I become quiet 」
 
-This is probably one of the most important things to understand about me.
+One of the biggest things I wish people understood about me is that silence does not always have a hidden meaning.
 
-If I suddenly become quiet, stop talking, reply slowly, or disappear for a while, please don't immediately assume the worst.
+If I suddenly become quiet, it doesn't automatically mean that I am upset with you.
 
-My silence does not automatically mean:
+It doesn't mean that I hate you.
 
-- I hate you.
-- I'm angry at you.
-- I'm trying to ignore you.
-- I'm bored of you.
-- You did something wrong.
-- I don't want to be friends anymore.
+It doesn't mean that you did something wrong.
 
-Sometimes I simply don't have the energy to talk.
+It doesn't mean that I am trying to make you feel bad.
 
-Sometimes I'm overwhelmed.
+And it definitely doesn't always mean that I want someone to leave me alone forever.
 
-Sometimes I'm thinking about something completely unrelated.
+Sometimes, I simply don't know what to say.
 
-Sometimes I just want to be alone for a while without having to explain everything.
+Sometimes I am tired.
 
-I know that my silence can sometimes be confusing from another person's point of view, and I understand why someone might wonder if something is wrong.
+Sometimes my mind is somewhere else.
 
-However, please don't create an explanation for my silence before asking me.
+Sometimes I am listening to music and getting lost in my own thoughts.
 
-There have been situations where my quietness was misunderstood, and that misunderstanding turned into unnecessary tension, arguments, or hurt feelings.
+Sometimes I just want to sit quietly without having to explain what is going on inside my head.
 
-I never intend for my silence to hurt anyone.
+There are also times when I see a message but don't have the energy to respond properly, so I tell myself that I will answer later.
 
-I also don't want a simple moment of being quiet to become a reason for people to argue with me or assume things about my intentions.
+Then later becomes much later.
 
-If something feels wrong, please ask me directly instead of assuming.
+And suddenly I realize that I have been quiet for hours or even longer.
 
-I would much rather explain what I actually mean than have someone misunderstand me based only on my silence.
+It is not meant to be disrespectful.
 
 ---
 
-## 「 Silence isn't rejection 」
+## 「 Something people sometimes misunderstand about me 」
 
-I want to make this especially clear.
+I think one of the hardest things for me is when my silence gets misunderstood.
 
-If I don't approach you first, it doesn't automatically mean I dislike you.
+When I become quiet or don't approach someone first, people may sometimes assume that I am angry, annoyed, ignoring them, or intentionally avoiding them.
 
-If I don't respond immediately, it doesn't automatically mean I'm ignoring you.
+That can lead to misunderstandings that I never intended to create.
 
-If I suddenly become quiet, it doesn't automatically mean I'm upset.
+Sometimes a small misunderstanding becomes a bigger conversation.
 
-If I spend time alone, it doesn't mean I don't care about the people around me.
+Sometimes it turns into an argument.
 
-Sometimes being alone is simply how I recharge.
+And sometimes people react to what they think I meant rather than what I actually meant.
 
-I don't always have the words to explain what I'm feeling at the exact moment it happens.
+The difficult part is that I may not even realize there is a problem until it has already become one.
 
-Sometimes I need time before I can properly understand my own thoughts and emotions.
+I don't want my silence to hurt anyone.
 
-So please give me a little patience.
+I don't want people to feel ignored.
 
-A quiet person is not necessarily an angry person.
+I don't want unnecessary arguments.
 
-A distant person is not necessarily a hateful person.
+But I also don't think it is fair to automatically blame me for something I never intended to do.
 
-And someone who needs space is not necessarily trying to push everyone away.
+If I didn't come to talk first, please don't immediately create a meaning behind it.
+
+If I reply late, please don't immediately assume that I am ignoring you.
+
+If I become quiet, please don't assume that I am angry.
+
+If something feels wrong, I would rather someone ask me directly than assume the worst.
+
+---
+
+## 「 When misunderstandings turn into problems 」
+
+There have been situations where someone misunderstood my silence or behavior, and the misunderstanding eventually became an argument.
+
+What makes this especially exhausting is that sometimes I wasn't the person who caused the problem in the first place.
+
+Yet when everything becomes complicated, I still end up having to explain myself, clear things up, calm the situation down, or fix the misunderstanding.
+
+I may have to explain what I meant.
+
+I may have to explain what I didn't mean.
+
+I may have to reassure people that I wasn't angry.
+
+I may have to apologize for something I never intended to do.
+
+And honestly, that can become really tiring.
+
+Sometimes I just want people to ask me what happened before deciding what I was thinking.
+
+I am not perfect, and I understand that I can make mistakes.
+
+If I genuinely hurt someone, I am willing to listen, acknowledge it, and take responsibility for my actions.
+
+But there is a difference between making a mistake and being blamed for something that was simply misunderstood.
+
+I don't want arguments to happen because someone assumed my silence had a meaning that it didn't actually have.
+
+I would much rather communicate calmly and solve things together.
 
 ---
 
 [![image](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX)
 
-> *It’s a game of cat and mouse — you're the mouse and you're gonna run and scream, they always scream.*
+*It’s a game of cat and mouse — you're the mouse and you're gonna run and scream, they always scream.*
+
+---
+
+## 「 My social battery 」
+
+My social battery is not always reliable.
+
+There are days when I can talk for hours and enjoy being around people.
+
+There are also days when even a simple conversation can feel exhausting.
+
+It depends on my mood, my energy, the environment around me, and how overwhelmed I feel at the time.
+
+When my social battery is low, I may become quieter than usual.
+
+I may answer with shorter messages.
+
+I may take longer to reply.
+
+I may not know how to continue a conversation.
+
+I may even disappear for a while.
+
+Please don't take every quiet moment personally.
+
+Sometimes I just need to recharge.
+
+I enjoy having people around me, but I also need time where nobody expects anything from me.
+
+Being alone doesn't always mean being lonely.
+
+Sometimes being alone is simply how I rest.
+
+---
+
+## 「 The way I connect with people 」
+
+I don't usually become comfortable with someone immediately.
+
+Trust takes time for me.
+
+I may observe how someone behaves, how they treat other people, how they communicate, and whether I feel safe being myself around them.
+
+Because of that, I might seem distant during the beginning of a friendship.
+
+But once I trust someone, I can become completely different.
+
+I can be silly.
+
+I can talk a lot.
+
+I can share random thoughts.
+
+I can become very attached.
+
+I can remember small details about things people have told me.
+
+I can care more deeply than I usually show.
+
+I just don't show that side of myself to everyone immediately.
+
+For me, closeness is something that develops naturally.
+
+I don't want to force it.
+
+I would rather build a genuine connection slowly than pretend to be comfortable before I actually am.
+
+---
+
+## 「 A little more about how I think 」
+
+I spend a lot of time thinking.
+
+Sometimes probably too much.
+
+I can replay conversations in my head and wonder whether I said something wrong.
+
+I can remember small details that other people might completely forget.
+
+Words, tone, expressions, and little actions can stay in my mind for a long time.
+
+Sometimes something that seems small to someone else can mean much more to me.
+
+That doesn't mean I expect everyone to understand everything I feel.
+
+I simply hope that people can be patient when I need a little more time to process things.
+
+I may not always know how to explain what I'm feeling immediately.
+
+Sometimes I need time to understand my own thoughts before I can put them into words.
 
 ---
 
 ## 「 Things I enjoy 」
 
-A lot of my free time is spent doing things that make me feel comfortable.
+A lot of my free time is spent on my phone.
 
-I enjoy listening to music, playing games, watching things I like, discovering new interests, and simply being in my own little world.
+I enjoy listening to music, playing games, exploring things that interest me, watching things I like, and simply having time to myself.
 
-I mostly play Roblox, especially games such as Dragon Adventures, Creatures of Sonaria, and Evade.
+I especially enjoy games that allow me to explore, create, survive, or experience a world at my own pace.
 
-I also play Minecraft, although I often prefer playing it by myself.
+My favorite games include:
 
-I enjoy having the freedom to choose what I want to do without feeling pressured to constantly interact with other people.
+✦ Roblox  
+✦ Dragon Adventures  
+✦ Creatures of Sonaria  
+✦ Evade  
+✦ Minecraft  
 
-Sometimes I can spend hours doing absolutely nothing but listening to music and thinking.
+I mostly play Roblox, while Minecraft is often something I enjoy playing by myself.
 
-And honestly?
+I also have a strong interest in psychology and human behavior.
 
-I enjoy that.
+I find people interesting.
 
----
-
-## 「 My interests & fandoms 」
-
-✦ FNAF
-
-I’ve loved FNAF since its original release in 2014, and it has remained one of the fandoms that I still care about.
-
-Even after all these years, I still enjoy the characters, stories, theories, and everything surrounding the series.
-
-✦ Dragon Adventures
-
-✦ Creatures of Sonaria
-
-✦ Roblox
-
-✦ Minecraft
-
-✦ Evade
-
-✦ Psychology
-
-I’m also interested in psychology and the way people think, behave, communicate, and experience emotions differently.
-
-I find human behavior interesting, especially the little details that people often overlook.
+The way people think, react, communicate, form relationships, misunderstand each other, and express emotions is something I genuinely enjoy learning about.
 
 ---
 
-## 「 A side of me people don't always see 」
+## 「 Fandoms & interests 」
 
-I might seem quiet, distant, or difficult to approach at first.
+# FNAF
 
-But that isn't necessarily who I am once I become comfortable with someone.
+I've been interested in Five Nights at Freddy's since the game's early days, and it has remained one of the fandoms I love for years.
 
-When I genuinely trust someone, I can be completely different.
+Even after the series expanded into books, theories, games, and movies, I still find myself coming back to it.
 
-I can be talkative.
+There is something about the atmosphere, characters, mystery, and endless theories that keeps me interested.
 
-I can be playful.
+---
 
-I can be caring.
+# Roblox
 
-I can joke around.
+Roblox is probably the platform I spend the most time on.
 
-I can become emotionally attached.
+I enjoy trying different games, exploring different worlds, and sometimes simply playing by myself.
 
-And sometimes I can talk about the most random things for hours.
+Some of my favorites include:
 
-The difference is simply trust.
+✦ Dragon Adventures  
+✦ Creatures of Sonaria  
+✦ Evade  
 
-I don't open every part of myself to everyone immediately.
-
-Getting to know me takes time.
-
-Trust takes time.
-
-Comfort takes time.
-
-And I think that's okay.
+---
 
 [![image](https://i.postimg.cc/vHb3kqBF/4a521c711159466db6582c7db35e485d.jpg)](https://postimg.cc/w34XskL0)
 
-> *because I am the aberration, the absence of all light.*
+*because I am the aberration, the absence of all light.*
 
 ---
 
-## 「 Boundaries & understanding 」
+## 「 Things I ask people to understand 」
 
-Please be patient and respectful when interacting with me.
+Please be patient with me.
 
-I don't expect everyone to understand me perfectly, but I do appreciate people who are willing to communicate instead of immediately assuming things.
+Please don't assume what I am thinking based only on how quiet I am.
 
-If something I do confuses you, ask.
+Please don't turn silence into a problem before asking me what is actually going on.
 
-If something I say bothers you, tell me.
+If you think I am upset with you, ask me.
 
-If you think I've misunderstood you, explain it.
+If you think I did something wrong, tell me.
 
-Communication is much better than silently building assumptions about each other.
+If something I said hurt you, please let me know.
 
-I will always try my best to respect other people's boundaries, and I expect the same in return.
+I would rather have an honest conversation than have someone silently build an assumption about me.
 
-I don't want unnecessary arguments caused by misunderstandings that could have been solved simply by talking.
+I will always try my best to respect other people's feelings and boundaries, and I hope the same can be given to me.
 
-I may not always communicate perfectly, but I do genuinely try.
+I am still learning how to communicate properly.
 
----
-
-## 「 Please don't take everything personally 」
-
-Sometimes I need space.
-
-Sometimes I need silence.
-
-Sometimes I don't have the energy to socialize.
+I make mistakes.
 
 Sometimes I don't know what to say.
 
-Sometimes I might read something and reply much later.
+Sometimes I need time.
 
-None of these things are automatically personal.
+Sometimes I need distance.
 
-Please don't turn my quietness into a statement that I never intended to make.
-
-I would rather be given the chance to explain myself than be judged for something I never meant.
+None of those things automatically mean that I don't care.
 
 ---
 
-## 「 Getting to know me takes time 」
+## 「 Please don't mistake my quietness for hatred 」
 
-I'm not the kind of person who instantly becomes comfortable with everyone.
+My silence is not a weapon.
 
-I usually need time before I can completely open up.
+It is not meant to punish anyone.
 
-But if we become close and I trust you, you'll probably see a much warmer and more talkative side of me.
+It is not a way of making people feel guilty.
 
-I care about the people I become close to.
+It is simply one of the ways I exist.
 
-I remember small details.
+I can care about someone and still need space.
 
-I notice changes.
+I can enjoy talking to someone and still not have the energy to talk today.
 
-And I often think about things much more deeply than I show.
+I can like someone and still disappear for a while.
 
-So if I let you into my little world, please understand that trust means a lot to me.
+I can be comfortable with someone and still need time alone.
+
+Those things can exist at the same time.
+
+So if I become quiet, please give me the chance to come back when I am ready.
 
 ---
 
-## 「 One last thing 」
+## 「 Boundaries 」
 
-You don't have to constantly talk to me.
+I respect personal boundaries, and I expect mine to be respected too.
 
-You don't have to force a conversation.
+Please don't pressure me into conversations when I clearly need space.
 
-You don't have to worry if I disappear for a while.
+Please don't force me to explain every quiet moment.
 
-Just be honest with me.
+Please don't assume that you know what I am feeling better than I do.
 
-Be patient.
+And please don't involve other people in a misunderstanding before giving me the opportunity to explain myself.
 
-Respect my boundaries, and I'll respect yours.
+If there is a problem between us, I would rather solve it directly and calmly.
 
-If I’m quiet, please don't immediately turn my silence into a problem.
+I don't want unnecessary drama.
 
-Sometimes silence is just silence.
+I don't want people fighting over assumptions.
 
-Sometimes I simply need a little space.
+I don't want to hurt anyone, and I don't want to be hurt because of something that was never meant the way it was interpreted.
 
-And sometimes, after disappearing into my own world for a while, I'll come back and talk like nothing happened.
+---
 
-That's just me.
+## 「 A final note 」
 
-✦ Thank you for taking the time to read this and understand a little more about the person behind the screen. ✦
+I'm not the easiest person to understand from the outside.
+
+I can be quiet, complicated, emotional, distant, affectionate, awkward, thoughtful, and talkative depending on the situation and the people around me.
+
+There are parts of me that take time to see.
+
+So if you are willing to be patient, communicate honestly, and respect my boundaries, you will probably get to know a much warmer and more open side of me.
+
+I don't expect everyone to understand me perfectly.
+
+I just hope people don't judge me before trying to understand me.
+
+And if we ever misunderstand each other, please talk to me before turning it into something bigger than it needs to be.
+
+Sometimes all I need is a little patience, a little communication, and the chance to explain myself.
+
+✦ Thank you for taking the time to read this and understand a little more about me. ✦
