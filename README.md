@@ -1,56 +1,82 @@
-#𝙳𝚎𝚝𝚊𝚒𝚕𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 𝚋𝚎𝚏𝚘𝚛𝚎 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑𝚒𝚗𝚐. 
+# A little bit about me...
 
-• 𝙸’𝚖 𝚗𝚘𝚝 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚠𝚑𝚘 𝚒𝚜 𝚌𝚘𝚗𝚜𝚝𝚊𝚗𝚝𝚕𝚢 𝚊𝚌𝚝𝚒𝚟𝚎 𝚒𝚗 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜 𝚘𝚛 𝚊𝚋𝚕𝚎 𝚝𝚘 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚝𝚘 𝚎𝚟𝚎𝚛𝚢 𝚖𝚎𝚜𝚜𝚊𝚐𝚎 𝚛𝚒𝚐𝚑𝚝 𝚊𝚠𝚊𝚢.
+> 「 Before you approach 」
 
-𝚄𝚗𝚕𝚎𝚜𝚜 𝚠𝚎’𝚛𝚎 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚌𝚕𝚘𝚜𝚎, 𝚑𝚊𝚟𝚎 𝚜𝚙𝚘𝚔𝚎𝚗 𝚋𝚎𝚏𝚘𝚛𝚎, 𝚘𝚛 𝚑𝚊𝚟𝚎 𝚋𝚞𝚒𝚕𝚝 𝚜𝚘𝚖𝚎 𝚕𝚎𝚟𝚎𝚕 𝚘𝚏 𝚝𝚛𝚞𝚜𝚝 𝚠𝚒𝚝𝚑 𝚎𝚊𝚌𝚑 𝚘𝚝𝚑𝚎𝚛, 𝙸 𝚖𝚊𝚢 𝚌𝚘𝚖𝚎 𝚊𝚌𝚛𝚘𝚜𝚜 𝚊𝚜 𝚚𝚞𝚒𝚎𝚝, 𝚍𝚒𝚜𝚝𝚊𝚗𝚝, 𝚘𝚛 𝚍𝚒𝚏𝚏𝚒𝚌𝚞𝚕𝚝 𝚝𝚘 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑 𝚊𝚝 𝚏𝚒𝚛𝚜𝚝.
+I’m not someone who is constantly available or able to reply immediately.
 
-𝚃𝚑𝚊𝚝 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚖𝚎𝚊𝚗 𝙸 𝚍𝚒𝚜𝚕𝚒𝚔𝚎 𝚝𝚊𝚕𝚔𝚒𝚗𝚐 𝚝𝚘 𝚙𝚎𝚘𝚙𝚕𝚎.
+I can be quiet, distant, or a little awkward at first. It doesn’t mean I dislike you — I just need time to feel comfortable.
 
-𝚃𝚑𝚎 𝚝𝚛𝚞𝚝𝚑 𝚒𝚜 𝚝𝚑𝚊𝚝 𝙸 𝚜𝚙𝚎𝚗𝚍 𝚊 𝚕𝚘𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎 𝚒𝚗 𝚖𝚢 𝚘𝚠𝚗 𝚝𝚑𝚘𝚞𝚐𝚑𝚝𝚜. 𝚂𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝙸 𝚐𝚎𝚝 𝚕𝚘𝚜𝚝 𝚒𝚗 𝚍𝚊𝚢𝚍𝚛𝚎𝚊𝚖𝚜, 𝚖𝚞𝚜𝚒𝚌, 𝚐𝚊𝚖𝚎𝚜, ,𝚘𝚛 𝚜𝚒𝚖𝚙𝚕𝚢 𝚠𝚑𝚊𝚝𝚎𝚟𝚎𝚛 𝚑𝚊𝚙𝚙𝚎𝚗𝚜 𝚝𝚘 𝚌𝚊𝚝𝚌𝚑 𝚖𝚢 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝 𝚊𝚝 𝚝𝚑𝚎 𝚖𝚘𝚖𝚎𝚗𝚝.
+I spend a lot of time in my own head, listening to music, playing games, or just enjoying some quiet time.
 
-𝙼𝚘𝚜𝚝 𝚘𝚏 𝚖𝚢 𝚏𝚛𝚎𝚎 𝚝𝚒𝚖𝚎 𝚒𝚜 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚜𝚙𝚎𝚗𝚝 𝚘𝚗 𝚖𝚢 𝚙𝚑𝚘𝚗𝚎, 𝚕𝚒𝚜𝚝𝚎𝚗𝚒𝚗𝚐 𝚝𝚘 𝚖𝚞𝚜𝚒𝚌, 𝚎𝚡𝚙𝚕𝚘𝚛𝚒𝚗𝚐 𝚝𝚑𝚒𝚗𝚐𝚜 𝙸 𝚎𝚗𝚓𝚘𝚢, 𝚘𝚛 𝚎𝚗𝚓𝚘𝚢𝚒𝚗𝚐 𝚖𝚢 𝚘𝚠𝚗 𝚌𝚘𝚖𝚙𝚊𝚗𝚢 𝚒𝚗 𝚜𝚒𝚕𝚎𝚗𝚌𝚎.
+---
 
-𝙱𝚎𝚌𝚊𝚞𝚜𝚎 𝚘𝚏 𝚝𝚑𝚒𝚜, 𝙸 𝚖𝚊𝚢 𝚛𝚎𝚙𝚕𝚢 𝚕𝚊𝚝𝚎, 𝚍𝚒𝚜𝚊𝚙𝚙𝚎𝚊𝚛 𝚏𝚘𝚛 𝚊 𝚠𝚑𝚒𝚕𝚎, 𝚘𝚛 𝚋𝚎𝚌𝚘𝚖𝚎 𝚚𝚞𝚒𝚎𝚝 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚊𝚗𝚢 𝚙𝚊𝚛𝚝𝚒𝚌𝚞𝚕𝚊𝚛 𝚛𝚎𝚊𝚜𝚘𝚗. 𝙿𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚊𝚜𝚜𝚞𝚖𝚎 𝚝𝚑𝚊𝚝 𝙸'𝚖 𝚒𝚐𝚗𝚘𝚛𝚒𝚗𝚐 𝚢𝚘𝚞 𝚘𝚛 𝚝𝚑𝚊𝚝 𝚢𝚘𝚞'𝚟𝚎 𝚍𝚘𝚗𝚎 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 𝚠𝚛𝚘𝚗𝚐.
+## 「 How I am 」
 
-𝙸 𝚜𝚒𝚖𝚙𝚕𝚢 𝚗𝚎𝚎𝚍 𝚖𝚘𝚛𝚎 𝚝𝚒𝚖𝚎 𝚊𝚕𝚘𝚗𝚎 𝚝𝚑𝚊𝚗 𝚖𝚘𝚜𝚝 𝚙𝚎𝚘𝚙𝚕𝚎 𝚍𝚘.
+✦ I like quiet and calm environments.
 
-𝙸 𝚎𝚗𝚓𝚘𝚢 𝚙𝚎𝚊𝚌𝚎𝚏𝚞𝚕 𝚎𝚗𝚟𝚒𝚛𝚘𝚗𝚖𝚎𝚗𝚝𝚜 𝚊𝚗𝚍 𝚚𝚞𝚒𝚎𝚝 𝚙𝚕𝚊𝚌𝚎𝚜. 𝙻𝚘𝚞𝚍, 𝚌𝚑𝚊𝚘𝚝𝚒𝚌, 𝚘𝚛 𝚘𝚟𝚎𝚛𝚠𝚑𝚎𝚕𝚖𝚒𝚗𝚐 𝚜𝚒𝚝𝚞𝚊𝚝𝚒𝚘𝚗𝚜 𝚌𝚊𝚗 𝚋𝚎 𝚎𝚡𝚑𝚊𝚞𝚜𝚝𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎, 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚙𝚛𝚎𝚏𝚎𝚛 𝚌𝚊𝚕𝚖 𝚜𝚙𝚊𝚌𝚎𝚜 𝚠𝚑𝚎𝚛𝚎 𝙸 𝚌𝚊𝚗 𝚝𝚑𝚒𝚗𝚔 𝚊𝚗𝚍 𝚏𝚎𝚎𝚕 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎.
-[![b495ac1d45360c4418ca11a216e429d6.jpg](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL)
+✦ I can get lost in my own thoughts and daydreams.
 
-(𝑖 𝑘𝑛𝑜𝑤 ℎ𝑜𝑤 𝑖𝑡𝑠 𝑎𝑙𝑙 𝑔𝑜𝑛𝑛𝑎 𝑒𝑛𝑑 𝑖𝑡'𝑠 𝑗𝑢𝑠𝑡 𝑎 𝑟𝑒𝑟𝑢𝑛 𝑎 𝑟𝑒𝑟𝑢𝑛 𝑜𝑓 𝑚𝑦 𝑓𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑒𝑝𝑖𝑠𝑜𝑑𝑒)
+✦ I may reply late or disappear for a while.
 
-𝙸 𝚊𝚖 𝚊𝚕𝚜𝚘 𝚊 𝙷𝚒𝚐𝚑𝚕𝚢 𝚂𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎 𝙿𝚎𝚛𝚜𝚘𝚗 (𝙷𝚂𝙿), 𝚠𝚑𝚒𝚌𝚑 𝚖𝚎𝚊𝚗𝚜 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚗𝚘𝚝𝚒𝚌𝚎 𝚜𝚖𝚊𝚕𝚕 𝚍𝚎𝚝𝚊𝚒𝚕𝚜, 𝚙𝚒𝚌𝚔 𝚞𝚙 𝚘𝚗 𝚎𝚖𝚘𝚝𝚒𝚘𝚗𝚜 𝚎𝚊𝚜𝚒𝚕𝚢, 𝚊𝚗𝚍 𝚏𝚎𝚎𝚕 𝚝𝚑𝚒𝚗𝚐𝚜 𝚖𝚘𝚛𝚎 𝚍𝚎𝚎𝚙𝚕𝚢 𝚝𝚑𝚊𝚗 𝚖𝚊𝚗𝚢 𝚙𝚎𝚘𝚙𝚕𝚎 𝚛𝚎𝚊𝚕𝚒𝚣𝚎.
+✦ I need more alone time than most people.
 
-• 𝚆𝚘𝚛𝚍𝚜, 𝚝𝚘𝚗𝚎, 𝚊𝚗𝚍 𝚜𝚖𝚊𝚕𝚕 𝚊𝚌𝚝𝚒𝚘𝚗𝚜 𝚌𝚊𝚗 𝚕𝚎𝚊𝚟𝚎 𝚊 𝚕𝚊𝚜𝚝𝚒𝚗𝚐 𝚒𝚖𝚙𝚛𝚎𝚜𝚜𝚒𝚘𝚗 𝚘𝚗 𝚖𝚎, 𝚠𝚑𝚎𝚝𝚑𝚎𝚛 𝚙𝚘𝚜𝚒𝚝𝚒𝚟𝚎 𝚘𝚛 𝚗𝚎𝚐𝚊𝚝𝚒𝚟𝚎.
+✦ I am a Highly Sensitive Person (HSP).
 
-𝙸 𝚖𝚊𝚢 𝚗𝚘𝚝 𝚊𝚕𝚠𝚊𝚢𝚜 𝚔𝚗𝚘𝚠 𝚝𝚑𝚎 𝚛𝚒𝚐𝚑𝚝 𝚝𝚑𝚒𝚗𝚐 𝚝𝚘 𝚜𝚊𝚢, 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚒𝚝 𝚝𝚊𝚔𝚎𝚜 𝚖𝚎 𝚊 𝚠𝚑𝚒𝚕𝚎 𝚝𝚘 𝚎𝚡𝚙𝚛𝚎𝚜𝚜 𝚖𝚢𝚜𝚎𝚕𝚏 𝚙𝚛𝚘𝚙𝚎𝚛𝚕𝚢.
+✦ Words, tone, and small actions can stay with me for a long time.
 
-𝙷𝚘𝚠𝚎𝚟𝚎𝚛, 𝙸 𝚐𝚎𝚗𝚞𝚒𝚗𝚎𝚕𝚢 𝚙𝚊𝚢 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 𝚝𝚘 𝚝𝚑𝚎 𝚕𝚒𝚝𝚝𝚕𝚎 𝚝𝚑𝚒𝚗𝚐𝚜 𝚊𝚗𝚍 𝚘𝚏𝚝𝚎𝚗 𝚛𝚎𝚖𝚎𝚖𝚋𝚎𝚛 𝚍𝚎𝚝𝚊𝚒𝚕𝚜 𝚝𝚑𝚊𝚝 𝚘𝚝𝚑𝚎𝚛𝚜 𝚖𝚒𝚐𝚑𝚝 𝚘𝚟𝚎𝚛𝚕𝚘𝚘𝚔.
+[![image](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL)
 
-𝙸𝚏 𝚠𝚎 𝚜𝚙𝚎𝚗𝚍 𝚎𝚗𝚘𝚞𝚐𝚑 𝚝𝚒𝚖𝚎 𝚝𝚘𝚐𝚎𝚝𝚑𝚎𝚛 𝚊𝚗𝚍 𝚐𝚎𝚝 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚎𝚊𝚌𝚑 𝚘𝚝𝚑𝚎𝚛 𝚋𝚎𝚝𝚝𝚎𝚛, 𝚢𝚘𝚞'𝚕𝚕 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚍𝚒𝚜𝚌𝚘𝚟𝚎𝚛 𝚊 𝚍𝚒𝚏𝚏𝚎𝚛𝚎𝚗𝚝 𝚜𝚒𝚍𝚎 𝚘𝚏 𝚖𝚎.
+> *i know how its all gonna end it's just a rerun a rerun of my favorite episode*
 
-𝙸 𝚌𝚊𝚗 𝚋𝚎 𝚠𝚊𝚛𝚖, 𝚌𝚊𝚛𝚒𝚗𝚐, 𝚙𝚕𝚊𝚢𝚏𝚞𝚕, 𝚊𝚗𝚍 𝚝𝚊𝚕𝚔𝚊𝚝𝚒𝚟𝚎 𝚊𝚛𝚘𝚞𝚗𝚍 𝚙𝚎𝚘𝚙𝚕𝚎 𝙸 𝚝𝚛𝚞𝚜𝚝.
+---
 
-𝙱𝚞𝚒𝚕𝚍𝚒𝚗𝚐 𝚝𝚑𝚊𝚝 𝚝𝚛𝚞𝚜𝚝 𝚜𝚒𝚖𝚙𝚕𝚢 𝚝𝚊𝚔𝚎𝚜 𝚝𝚒𝚖𝚎.
+## 「 My little world 」
 
-[![cd178572798bb0fea7fadcac7e718319.jpg](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX)
+Much of my free time is spent on my phone, listening to music, exploring things I like, and playing games.
 
-(𝐼𝑡’𝑠 𝑎 𝑔𝑎𝑚𝑒 𝑐𝑎𝑡-𝑎𝑛𝑑-𝑚𝑜𝑢𝑠𝑒 𝑦𝑜𝑢'𝑟𝑒 𝑡ℎ𝑒 𝑚𝑜𝑢𝑠𝑒 𝑎𝑛𝑑 𝑦𝑜𝑢'𝑟𝑒 𝑔𝑜𝑛𝑛𝑎 𝑟𝑢𝑛 𝑎𝑛𝑑 𝑠𝑐𝑟𝑒𝑎𝑚 𝑡ℎ𝑒𝑦 𝑎𝑙𝑤𝑎𝑦𝑠 𝑠𝑐𝑟𝑒𝑎𝑚)
+I prefer doing things at my own pace. I can be quiet for a long time, but around people I trust, I can be much more open, warm, and talkative.
 
-𝙿𝚕𝚎𝚊𝚜𝚎 𝚋𝚎 𝚔𝚒𝚗𝚍, 𝚙𝚊𝚝𝚒𝚎𝚗𝚝, 𝚊𝚗𝚍 𝚛𝚎𝚜𝚙𝚎𝚌𝚝𝚏𝚞𝚕 𝚘𝚏 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚒𝚎𝚜 — 𝚗𝚘𝚝 𝚘𝚗𝚕𝚢 𝚖𝚒𝚗𝚎, 𝚋𝚞𝚝 𝚊𝚕𝚜𝚘 𝚝𝚑𝚘𝚜𝚎 𝚘𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝙸𝚏 𝙸 𝚍𝚘𝚗’𝚝 𝚌𝚘𝚖𝚎 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚢𝚘𝚞 𝚘𝚛 𝚜𝚝𝚊𝚛𝚝 𝚊 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗, 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚖𝚎𝚊𝚗 𝙸 𝚍𝚒𝚜𝚕𝚒𝚔𝚎 𝚢𝚘𝚞.
-𝙸’𝚖 𝚓𝚞𝚜𝚝 𝚗𝚊𝚝𝚞𝚛𝚊𝚕𝚕𝚢 𝚜𝚑𝚢 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚏𝚎𝚎𝚕 𝚗𝚎𝚛𝚟𝚘𝚞𝚜 𝚠𝚑𝚎𝚗 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚘𝚝𝚑𝚎𝚛𝚜.
+[![image](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX)
 
-𝙸 𝚏𝚒𝚗𝚍 𝚒𝚝 𝚊 𝚋𝚒𝚝 𝚍𝚒𝚏𝚏𝚒𝚌𝚞𝚕𝚝 𝚝𝚘 𝚔𝚎𝚎𝚙 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜 𝚐𝚘𝚒𝚗𝚐 𝚘𝚛 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚙𝚛𝚘𝚙𝚎𝚛𝚕𝚢, 𝚎𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚠𝚑𝚎𝚗 𝚠𝚎’𝚛𝚎 𝚗𝚘𝚝 𝚌𝚕𝚘𝚜𝚎 𝚢𝚎𝚝.
+> *It’s a game cat-and-mouse — you're the mouse and you're gonna run and scream, they always scream.*
 
-𝙸 𝚊𝚕𝚜𝚘 𝚍𝚘𝚗’𝚝 𝚑𝚊𝚟𝚎 𝚖𝚊𝚗𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝚜𝚘 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚐𝚎𝚝 𝚊𝚝𝚝𝚊𝚌𝚑𝚎𝚍 𝚝𝚘 𝚙𝚎𝚘𝚙𝚕𝚎 𝚎𝚊𝚜𝚒𝚕𝚢 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚏𝚎𝚎𝚕 𝚊 𝙸𝚃𝚑𝚊𝚗𝚔 𝚓𝚎𝚊𝚕𝚘𝚞𝚜 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚖𝚎𝚊𝚗𝚒𝚗𝚐 𝚝𝚘.
+---
 
-𝙴𝚟𝚎𝚗 𝚜𝚘, 𝙸 𝚊𝚕𝚠𝚊𝚢𝚜 𝚝𝚛𝚢 𝚖𝚢 𝚋𝚎𝚜𝚝 𝚗𝚘𝚝 𝚝𝚘 𝚋𝚘𝚝𝚑𝚎𝚛 𝚊𝚗𝚢𝚘𝚗𝚎 𝚘𝚛 𝚖𝚊𝚔𝚎 𝚝𝚑𝚎𝚖 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎. 
+## 「 A side of me that takes time 」
 
-[![4a521c711159466db6582c7db35e485d.jpg](https://i.postimg.cc/vHb3kqBF/4a521c711159466db6582c7db35e485d.jpg)](https://postimg.cc/w34XskL0)
+I may seem shy or unavailable at first, but that changes once I feel safe around someone.
 
-(𝑏𝑒𝑐𝑢𝑎𝑠𝑒 𝐼 𝑎𝑚 𝑡ℎ𝑒 𝑎𝑏𝑒𝑟𝑟𝑎𝑡𝑖𝑜𝑛 𝑡ℎ𝑒 𝑎𝑏𝑠𝑒𝑛𝑐𝑒 𝑜𝑓 𝑎𝑙𝑙 𝑙𝑖𝑔ℎ𝑡)
+I find it hard to keep conversations going sometimes, especially with people I haven’t known for long.
 
- #𝙸'𝚖 𝚒𝚗 𝚊 𝚏𝚊𝚗𝚍𝚘𝚖. 𝙵𝙽𝙰𝙵 𝙵𝚛𝚘𝚖 𝚝𝚑𝚎 𝚐𝚊𝚖𝚎'𝚜 𝚒𝚗𝚒𝚝𝚒𝚊𝚕 𝚛𝚎𝚕𝚎𝚊𝚜𝚎 𝚒𝚗 𝟸𝟶𝟷𝟺 𝚞𝚗𝚝𝚒𝚕 𝚗𝚘𝚠, 𝚊𝚗𝚍 𝚎𝚟𝚎𝚗 𝚊𝚏𝚝𝚎𝚛 𝚝𝚑𝚎𝚢 𝚖𝚊𝚍𝚎 𝚒𝚝 𝚒𝚗𝚝𝚘 𝚊 𝚖𝚘𝚟𝚒𝚎, 𝙸'𝚟𝚎 𝚕𝚘𝚟𝚎𝚍 𝚒𝚝 𝚟𝚎𝚛𝚢 𝚖𝚞𝚌𝚑. ♡
+I also tend to get attached to people easily, so I try to keep my boundaries clear and respect other people's boundaries too.
 
-• #𝙼𝚢 𝚏𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚐𝚊𝚖𝚎 𝚒𝚜 𝚍𝚛𝚊𝚐𝚘𝚗 𝚊𝚍𝚟𝚎𝚗𝚝𝚞𝚛𝚎𝚜/𝚌𝚛𝚎𝚊𝚝𝚞𝚛𝚎𝚜 𝚘𝚏 𝚜𝚘𝚗𝚊𝚛𝚒𝚊 𝙰𝚗𝚍 𝙸 𝚙𝚕𝚊𝚢 𝙼𝚒𝚗𝚎𝚌𝚛𝚊𝚏𝚝 𝚝𝚘𝚘. 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚙𝚕𝚊𝚢 𝚁𝚘𝚋𝚕𝚘𝚡 𝚐𝚊𝚖𝚎𝚜. 𝚊𝚗𝚍 𝙼𝚒𝚗𝚎𝚌𝚛𝚊𝚏𝚝 𝙸 𝚙𝚕𝚊𝚢 𝚊𝚕𝚘𝚗𝚎 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚋𝚎𝚒𝚗𝚐 𝚋𝚢 𝚖𝚢𝚜𝚎𝚕𝚏 𝚊𝚗𝚍 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚖𝚢 𝚏𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚐𝚊𝚖𝚎. 𝙰𝚗𝚍 𝙸 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚎𝚎𝚍𝚘𝚖 𝙰𝚗𝚍 𝙸 𝚊𝚖. 𝙿𝚜𝚢𝚌𝚑𝚘𝚕𝚘𝚐𝚢 𝙴𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝 𝙰𝚗𝚍 𝙸 𝚙𝚕𝚊𝚢𝚎𝚍. 𝚎𝚟𝚊𝚍𝚎「 ✦ 𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 𝚝𝚘 𝚛𝚎𝚊𝚍 𝚝𝚑𝚒𝚜.✦ 」
-✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+[![image](https://i.postimg.cc/vHb3kqBF/4a521c711159466db6582c7db35e485d.jpg)](https://postimg.cc/w34XskL0)
+
+> *because I am the aberration, the absence of all light.*
+
+---
+
+# 「 Fandoms & things I love 」
+
+✦ #FNAF  
+I’ve been in the fandom since 2014, and I still love it years later. ♡
+
+✦ #Dragon Adventures  
+✦ #Creatures of Sonaria  
+✦ #Roblox  
+✦ #Minecraft  
+✦ #Evade  
+
+I usually play Roblox mostly, while Minecraft is often more of a solo game for me.
+
+---
+
+## 「 A little reminder 」
+
+Please be kind, patient, and respectful of personal boundaries.
+
+If I don’t come to talk to you first, it doesn’t mean I dislike you. I am just quiet and shy sometimes.
+
+My social battery isn’t always alive, so I appreciate patience.
+
+✦ Thank you for stopping by and reading a little piece of my world. ✦
