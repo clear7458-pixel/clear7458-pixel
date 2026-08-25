@@ -295,8 +295,7 @@ Some of my favorites include:
 ✦ Evade  
 
 ---
-
-[![image](https://i.postimg.cc/vHb3kqBF/4a521c711159466db6582c7db35e485d.jpg)](https://postimg.cc/w34XskL0)
+[![IMG-20260826-055418.jpg](https://i.postimg.cc/02LM8n3G/IMG-20260826-055418.jpg)](https://postimg.cc/2V78GQC3)
 
 *because I am the aberration, the absence of all light.*
 
