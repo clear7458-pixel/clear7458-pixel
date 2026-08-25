@@ -15,7 +15,7 @@
 𝙸 𝚜𝚒𝚖𝚙𝚕𝚢 𝚗𝚎𝚎𝚍 𝚖𝚘𝚛𝚎 𝚝𝚒𝚖𝚎 𝚊𝚕𝚘𝚗𝚎 𝚝𝚑𝚊𝚗 𝚖𝚘𝚜𝚝 𝚙𝚎𝚘𝚙𝚕𝚎 𝚍𝚘.
 
 𝙸 𝚎𝚗𝚓𝚘𝚢 𝚙𝚎𝚊𝚌𝚎𝚏𝚞𝚕 𝚎𝚗𝚟𝚒𝚛𝚘𝚗𝚖𝚎𝚗𝚝𝚜 𝚊𝚗𝚍 𝚚𝚞𝚒𝚎𝚝 𝚙𝚕𝚊𝚌𝚎𝚜. 𝙻𝚘𝚞𝚍, 𝚌𝚑𝚊𝚘𝚝𝚒𝚌, 𝚘𝚛 𝚘𝚟𝚎𝚛𝚠𝚑𝚎𝚕𝚖𝚒𝚗𝚐 𝚜𝚒𝚝𝚞𝚊𝚝𝚒𝚘𝚗𝚜 𝚌𝚊𝚗 𝚋𝚎 𝚎𝚡𝚑𝚊𝚞𝚜𝚝𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚎, 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚙𝚛𝚎𝚏𝚎𝚛 𝚌𝚊𝚕𝚖 𝚜𝚙𝚊𝚌𝚎𝚜 𝚠𝚑𝚎𝚛𝚎 𝙸 𝚌𝚊𝚗 𝚝𝚑𝚒𝚗𝚔 𝚊𝚗𝚍 𝚏𝚎𝚎𝚕 𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎.
-[![b495ac1d45360c4418ca11a216e429d6.jpg](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL) 
+[![b495ac1d45360c4418ca11a216e429d6.jpg](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL)
 
 (𝑖 𝑘𝑛𝑜𝑤 ℎ𝑜𝑤 𝑖𝑡𝑠 𝑎𝑙𝑙 𝑔𝑜𝑛𝑛𝑎 𝑒𝑛𝑑 𝑖𝑡'𝑠 𝑗𝑢𝑠𝑡 𝑎 𝑟𝑒𝑟𝑢𝑛 𝑎 𝑟𝑒𝑟𝑢𝑛 𝑜𝑓 𝑚𝑦 𝑓𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑒𝑝𝑖𝑠𝑜𝑑𝑒)
 
@@ -33,7 +33,7 @@
 
 𝙱𝚞𝚒𝚕𝚍𝚒𝚗𝚐 𝚝𝚑𝚊𝚝 𝚝𝚛𝚞𝚜𝚝 𝚜𝚒𝚖𝚙𝚕𝚢 𝚝𝚊𝚔𝚎𝚜 𝚝𝚒𝚖𝚎.
 
-[![cd178572798bb0fea7fadcac7e718319.jpg](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX) 
+[![cd178572798bb0fea7fadcac7e718319.jpg](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX)
 
 (𝐼𝑡’𝑠 𝑎 𝑔𝑎𝑚𝑒 𝑐𝑎𝑡-𝑎𝑛𝑑-𝑚𝑜𝑢𝑠𝑒 𝑦𝑜𝑢'𝑟𝑒 𝑡ℎ𝑒 𝑚𝑜𝑢𝑠𝑒 𝑎𝑛𝑑 𝑦𝑜𝑢'𝑟𝑒 𝑔𝑜𝑛𝑛𝑎 𝑟𝑢𝑛 𝑎𝑛𝑑 𝑠𝑐𝑟𝑒𝑎𝑚 𝑡ℎ𝑒𝑦 𝑎𝑙𝑤𝑎𝑦𝑠 𝑠𝑐𝑟𝑒𝑎𝑚)
 
