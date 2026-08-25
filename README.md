@@ -46,7 +46,7 @@
 
 𝙴𝚟𝚎𝚗 𝚜𝚘, 𝙸 𝚊𝚕𝚠𝚊𝚢𝚜 𝚝𝚛𝚢 𝚖𝚢 𝚋𝚎𝚜𝚝 𝚗𝚘𝚝 𝚝𝚘 𝚋𝚘𝚝𝚑𝚎𝚛 𝚊𝚗𝚢𝚘𝚗𝚎 𝚘𝚛 𝚖𝚊𝚔𝚎 𝚝𝚑𝚎𝚖 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎. 
 
-[![6d623899742c2ca3b1c4eccadf262c25.jpg](https://i.postimg.cc/qRSJ560t/6d623899742c2ca3b1c4eccadf262c25.jpg)](https://postimg.cc/9RPH4MDV)
+[![4a521c711159466db6582c7db35e485d.jpg](https://i.postimg.cc/vHb3kqBF/4a521c711159466db6582c7db35e485d.jpg)](https://postimg.cc/w34XskL0)
 
 (𝑏𝑒𝑐𝑢𝑎𝑠𝑒 𝐼 𝑎𝑚 𝑡ℎ𝑒 𝑎𝑏𝑒𝑟𝑟𝑎𝑡𝑖𝑜𝑛 𝑡ℎ𝑒 𝑎𝑏𝑠𝑒𝑛𝑐𝑒 𝑜𝑓 𝑎𝑙𝑙 𝑙𝑖𝑔ℎ𝑡)
 
