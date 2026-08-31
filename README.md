@@ -42,9 +42,8 @@ Once I feel safe and comfortable around someone, I can become much more talkativ
 
 ✦ I am also a Highly Sensitive Person (HSP), so I can sometimes notice and feel things more deeply than people might expect.
 
-[![image](https://i.postimg.cc/8CLjWHVd/b495ac1d45360c4418ca11a216e429d6.jpg)](https://postimg.cc/NyfsvRFL)
+[![2a3bcb3883dfb152c179f9db08432187.jpg](https://i.postimg.cc/fW3BfwT5/2a3bcb3883dfb152c179f9db08432187.jpg)](https://postimg.cc/YjH6pBFm)
 
-*i know how its all gonna end it's just a rerun a rerun of my favorite episode*
 
 ---
 
@@ -148,9 +147,9 @@ I would much rather communicate calmly and solve things together.
 
 ---
 
-[![image](https://i.postimg.cc/MGwWkJhR/cd178572798bb0fea7fadcac7e718319.jpg)](https://postimg.cc/pm0N84VX)
+[![93564a32c32d4c76095467aa6ab92486.jpg](https://i.postimg.cc/pXFXDnjt/93564a32c32d4c76095467aa6ab92486.jpg)](https://postimg.cc/yk7HKxnf)
 
-*It’s a game of cat and mouse — you're the mouse and you're gonna run and scream, they always scream.*
+
 
 ---
 
@@ -295,9 +294,8 @@ Some of my favorites include:
 ✦ Evade  
 
 ---
-[![IMG-20260826-055418.jpg](https://i.postimg.cc/02LM8n3G/IMG-20260826-055418.jpg)](https://postimg.cc/2V78GQC3)
+[![466560994df50969b5ff864c14afdabf.jpg](https://i.postimg.cc/L61Ln56J/466560994df50969b5ff864c14afdabf.jpg)](https://postimg.cc/kB7BHnSC)
 
-*because I am the aberration, the absence of all light.*
 
 ---
 
