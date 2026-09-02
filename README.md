@@ -1,4 +1,4 @@
-𝙰 𝚕𝚒𝚝𝚝𝚕𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎...
+might 𝚕𝚒𝚝𝚝𝚕𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎...
 
 ««「 𝙱𝚎𝚏𝚘𝚛𝚎 𝚢𝚘𝚞 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑 」»»
 
@@ -8,7 +8,7 @@ I spend a lot of my time listening to music, playing games, exploring my interes
 
 I’m also a Highly Sensitive Person (HSP), so I tend to notice small details, emotions, words, and changes in tone more deeply than people might expect.
 
-[![62ec8110886f696a2aeb5a2fae3adde6.jpg](https://i.postimg.cc/c4r9ZwVw/62ec8110886f696a2aeb5a2fae3adde6.jpg)](https://postimg.cc/kBPFv6Mg)
+<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/CxtdXTbz/mi-m-ch-x-80-20260902210450.png' border='0' alt='mi-m-ch-x-80-20260902210450'></a>
 ---
 
 «「 𝚆𝚑𝚎𝚗 𝙸 𝚐𝚘 𝚚𝚞𝚒𝚎𝚝 」»
@@ -19,11 +19,11 @@ Sometimes I’m simply tired, overwhelmed, lost in my thoughts, or unsure of wha
 
 Sometimes my quietness can unintentionally cause misunderstandings. People may assume what I meant or how I feel, and a small misunderstanding can grow into an argument.
 
-What makes this especially exhausting is having to explain, clear up, or fix a situation that I never intended to cause.
+What makes this especially exhaustiis is having to explain, clear up, or fix a situation that I never intended to cause.
 
 If something feels wrong, please ask me directly before making assumptions. I would rather communicate calmly and clear things up than let an unnecessary misunderstanding become something bigger.
 
-[![f5911a81c0b43945b5977e0b6f2aafcc.jpg](https://i.postimg.cc/hGxNnTQm/f5911a81c0b43945b5977e0b6f2aafcc.jpg)](https://postimg.cc/VSfKBSRs)
+<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/gkHvCJ06/mi-m-ch-x-79-20260902210259.png' border='0' alt='mi-m-ch-x-79-20260902210259'></a>
 
 ---
 
@@ -55,7 +55,7 @@ I’ve loved FNAF since its early days and still enjoy the characters, lore, the
 
 I mostly play Roblox, especially games like Dragon Adventures, Creatures of Sonaria, and Evade. I also enjoy Minecraft, usually as a more peaceful solo game.
 
-[![f796bb1f45b9f49368cfaf9fa195499b.jpg](https://i.postimg.cc/vTjvD2pb/f796bb1f45b9f49368cfaf9fa195499b.jpg)](https://postimg.cc/H8wMhzYh)
+<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/wjs9tts8/mi-m-ch-x-81-20260902210510.png' border='0' alt='mi-m-ch-x-81-20260902210510'></a>
 
 ---
 
