@@ -8,7 +8,7 @@ I spend a lot of my time listening to music, playing games, exploring my interes
 
 I’m also a Highly Sensitive Person (HSP), so I tend to notice small details, emotions, words, and changes in tone more deeply than people might expect.
 
-[![2a3bcb3883dfb152c179f9db08432187.jpg](https://i.postimg.cc/6qZGT4MZ/2a3bcb3883dfb152c179f9db08432187.jpg)](https://postimg.cc/m1br5kfZ)
+[![62ec8110886f696a2aeb5a2fae3adde6.jpg](https://i.postimg.cc/c4r9ZwVw/62ec8110886f696a2aeb5a2fae3adde6.jpg)](https://postimg.cc/kBPFv6Mg)
 ---
 
 «「 𝚆𝚑𝚎𝚗 𝙸 𝚐𝚘 𝚚𝚞𝚒𝚎𝚝 」»
@@ -23,7 +23,7 @@ What makes this especially exhausting is having to explain, clear up, or fix a s
 
 If something feels wrong, please ask me directly before making assumptions. I would rather communicate calmly and clear things up than let an unnecessary misunderstanding become something bigger.
 
-[![93564a32c32d4c76095467aa6ab92486.jpg](https://i.postimg.cc/Jtw4FTcG/93564a32c32d4c76095467aa6ab92486.jpg)](https://postimg.cc/m1wszyns)
+[![f5911a81c0b43945b5977e0b6f2aafcc.jpg](https://i.postimg.cc/hGxNnTQm/f5911a81c0b43945b5977e0b6f2aafcc.jpg)](https://postimg.cc/VSfKBSRs)
 
 ---
 
@@ -55,7 +55,7 @@ I’ve loved FNAF since its early days and still enjoy the characters, lore, the
 
 I mostly play Roblox, especially games like Dragon Adventures, Creatures of Sonaria, and Evade. I also enjoy Minecraft, usually as a more peaceful solo game.
 
-[![466560994df50969b5ff864c14afdabf.jpg](https://i.postimg.cc/fbg3KfFq/466560994df50969b5ff864c14afdabf.jpg)](https://postimg.cc/TygY2gTn)
+[![f796bb1f45b9f49368cfaf9fa195499b.jpg](https://i.postimg.cc/vTjvD2pb/f796bb1f45b9f49368cfaf9fa195499b.jpg)](https://postimg.cc/H8wMhzYh)
 
 ---
 
