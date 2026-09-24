@@ -8,7 +8,7 @@
 
 ---
 
-
+[![mi-m-ch-x-4-20260924180055.png](https://i.postimg.cc/5Nf3RwJG/mi-m-ch-x-4-20260924180055.png)](https://postimg.cc/mh6Cc1tN)
 
 
 
