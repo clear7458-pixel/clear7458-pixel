@@ -4,7 +4,7 @@
 
 [![0b7b75a660a45dbd49c852ae44d0a89c.gif](https://i.postimg.cc/v8Cy7ZdZ/0b7b75a660a45dbd49c852ae44d0a89c.gif)](https://postimg.cc/9zPsCVM6)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F710E8&width=435&lines=I+just+want+to+be+important." alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=14CCFF&width=435&lines=Care+about+you%3F+Never.)](https://git.io/typing-svg)
 
 ---
 
