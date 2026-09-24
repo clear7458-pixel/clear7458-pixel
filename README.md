@@ -1,3 +1,4 @@
+[![mi-m-ch-x-3-20260924175748.png](https://i.postimg.cc/9X7KhPs6/mi-m-ch-x-3-20260924175748.png)](https://postimg.cc/Z0JVPNbH)
 
 ---
 
