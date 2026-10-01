@@ -1,5 +1,4 @@
-[![mi-m-ch-x-3-20260924175748.png](https://i.postimg.cc/9X7KhPs6/mi-m-ch-x-3-20260924175748.png)](https://postimg.cc/Z0JVPNbH)
-
+[![mi-m-ch-x-13-20261001195015.png](https://i.postimg.cc/pXKQHd5h/mi-m-ch-x-13-20261001195015.png)](https://postimg.cc/cr4t70m0)
 ---
 
 [![mi-m-ch-x-11-20261001194342.png](https://i.postimg.cc/VNQWQ8vT/mi-m-ch-x-11-20261001194342.png)](https://postimg.cc/k2sbKLxF)
