@@ -11,17 +11,18 @@
 
 ---
 <p align="center">
-
-  <a href="https://open.spotify.com/track/0LZhlPswR8YgcJV09oQvg9">
+  <a href="https://open.spotify.com/track/6Wo2et5D6vR5GO0lh9Z6uY">
     <img src="https://i.scdn.co/image/ab67616d0000b273b6f0d5f8e4e2c5c5f6c7d8e9" width="180">
   </a>
+</p>
 
-  <br>
-
-  🎧 <b>Forever</b>
-  <br>
-  <i>The Little Dippers</i>
-
+<p align="center">
+  🎧 <b>Hero (Prod. by Primary) - Instrumental</b><br>
+  <i>Meego</i>
+  <br><br>
+  <a href="https://open.spotify.com/track/6Wo2et5D6vR5GO0lh9Z6uY">
+    <img src="https://img.shields.io/badge/Listen%20on%20Spotify-1DB954?style=for-the-badge&logo=spotify&logoColor=white">
+  </a>
 </p>
 
 ---
